@@ -15,7 +15,7 @@ https://canva.link/3l9h1sdopgy03f1
 
 Gamespot:
 https://canva.link/un9w6zfn7bbkbch
-Code:
+Code: https://github.com/johnbaptista30/My-Portfolio/blob/main/Gamespot%20code
 
 
 
