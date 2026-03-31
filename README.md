@@ -24,6 +24,16 @@ Code:
 https://github.com/johnbaptista30/My-Portfolio/blob/main/Gamespot%20code
 
 
+First 3D Model:
+
+https://canva.link/qc74j9fou9cquc7
+
+
+First Storyboard for my game
+
+https://canva.link/q8qos2ozhlte4ep
+
+
 
 
 
